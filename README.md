@@ -51,7 +51,7 @@
  
 
 ㅤㅤㅤㅤ  
-ㅤㅤㅤㅤ   ୨୧  　　   ⊹ 　　       [PRNS.PAGE](https://en.pronouns.page/@CL16)  / [ATABOOK](https://lestappen.atabook.org)
+ㅤㅤㅤㅤ   ୨୧  　　   ⊹ 　　       [PRNS.PAGE](https://en.pronouns.page/@CL16)  / [ATABOOK](https://16lec.atabook.org)
 
 <img width="736" height="245" alt="F1 TWITTER HEADER !" src="https://github.com/user-attachments/assets/d30617e1-348b-4964-8b12-b3c64a93d6c0" />
 
