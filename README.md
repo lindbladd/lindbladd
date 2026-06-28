@@ -1,6 +1,7 @@
 ## THE PRINCE OF MONACO
 
-<img width="735" height="245" alt="HEADER - LECLERC" src="https://github.com/user-attachments/assets/896f4f8c-5141-4fb1-a9c7-382654c8508e" />
+
+<img width="736" height="380" alt="download (27)" src="https://github.com/user-attachments/assets/6983ae31-3319-4bd4-939e-e9a8cd492c26" />
 
 
 i get rehyperfixated on some of my top drivers so i change this github alot, im not a larper i just get fixated on drivers way too easy
@@ -13,15 +14,17 @@ i get rehyperfixated on some of my top drivers so i change this github alot, im 
 
 
 
- &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRONOUNS.CC](https://pronouns.cc/@CL16)
+ &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRONOUNS.CC](https://pronouns.cc/@MV3)
 
 &ensp;&ensp;&ensp;[GUNS.LOL](https://guns.lol/kimiantonelli1)
 
- &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp; &ensp;&ensp;[ATA](https://charlesleclerc.atabook.org)  &ensp;&ensp; &ensp;&ensp; [PRNS.PAGE](https://en.pronouns.page/@cl16)
+ &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp; &ensp;&ensp;[ATA](https://maxverstappenn.atabook.org)  &ensp;&ensp; &ensp;&ensp; [PRNS.PAGE](https://en.pronouns.page/@maxver3)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&cover_image=true&theme=natemoo-re&show_offline=true&background_color=6b0000&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&redirect=true)
 
 
-<img width="735" height="245" alt="download (22)" src="https://github.com/user-attachments/assets/a1b56c33-cd88-4be8-8efe-c38e5c620945" />
+
+<img width="735" height="245" alt="download (28)" src="https://github.com/user-attachments/assets/28c5e7d1-195f-4921-841b-f934f01d4021" />
+
 
 
